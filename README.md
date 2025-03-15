@@ -1,2 +1,0 @@
-# WebsitesYayyyyy
-Boba Drop Website
